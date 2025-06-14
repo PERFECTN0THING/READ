@@ -1,5 +1,5 @@
-## ‼️BYI:
-do not copy/take major inspo from me!! i am autistic, socially anxious, and have a hard time socializing. i apologize if i seem dry/awkward at first. i usually don't like interacting or iniating convos first. i am also forgetful and have difficulty concentrating and processing information quickly, please be patient. i'm usually afk since i tend to get overwhelmed or burnt out quickly, or if i have something to do. i am not ignoring you. 
+## READ:
+do not copy/take major inspo from me!! minor inspo is fine. spam followers dni, i'll soft block you if you do. byi keep in mind of these things: i am autistic, socially anxious, and have a hard time socializing. i apologize if i seem dry/awkward at first. i usually don't like interacting or iniating convos first. i am also forgetful and have difficulty concentrating and processing information quickly. i'm usually afk since i tend to get overwhelmed or burnt out quickly, or if i have something to do. i am not ignoring you. if you wanna interact please w2i and just be chill thanks
 
 <!--
 **meowkoto/meowkoto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
