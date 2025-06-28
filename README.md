@@ -1,4 +1,4 @@
-![IMG_3369](https://github.com/user-attachments/assets/44948578-1b30-4316-a29e-6ce8c66452f9)
+![IMG_3371](https://github.com/user-attachments/assets/585e9cdd-d0d0-46b7-937b-805f63f0812c)
 ## ‼️NOTICE‼️ :
 do not copy/take major inspo from me!! minor inspo is fine. usually afk either cause i'm busy or i'm stressed/burnt out. w2i preferred.
 
