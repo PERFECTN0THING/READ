@@ -7,7 +7,7 @@
 
 ⋆˚꩜｡ ⋮ hii ,, call me aspen or aren or the name of whatever character i'm cosplaying idm
 
-⋆˚꩜｡ ⋮ 16 y / o
+⋆˚꩜｡ ⋮ 16 y/o
 
 ⋆˚꩜｡ ⋮ he / xe / they / any neos
 
