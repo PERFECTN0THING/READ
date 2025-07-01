@@ -15,7 +15,7 @@
 
 ⋆˚꩜｡ ⋮ do not copy/take major inspo from me!! minor inspo is fine . 
 
-⋆˚꩜｡ ⋮ usually afk either cause i'm busy or i'm stressed/burnt out . w2i preferred . although sometimes i disconnect cause of my interenet / if i was afk for too long . because of this sometimes i miss chats or whispers sent to me , i'm sorry for this i swear i'm not ignoring you 💔
+⋆˚꩜｡ ⋮ usually afk either cause i'm busy or i'm stressed/burnt out . w2i preferred . although sometimes i disconnect cause of my interenet/if i was afk for too long . because of this sometimes i miss chats or whispers sent to me , i'm sorry for this i swear i'm not ignoring you 💔
 
 ⋆˚꩜｡ ⋮ if i end up missing any of your messages , you can always send me things through atabook :) 
 
