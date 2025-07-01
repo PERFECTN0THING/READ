@@ -3,7 +3,7 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 ## ⋆˚࿔ ABOUT ᝰ.ᐟ :
-⋆˚꩜｡ ⋮ my rentry and strawpage are wips so i'm using this...
+⋆˚꩜｡ ⋮ my rentry and strawpage are wips so i'm using this... sorry for the wall of text but pls read this before you interact lol
 
 ⋆˚꩜｡ ⋮ hii ,, call me aspen or aren or the name of whatever character i'm cosplaying idm
 
