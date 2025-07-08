@@ -13,6 +13,8 @@
 
 ⋆˚꩜｡ ⋮ ⸝⸝transmasc aroace⸝⸝
 
+⋆˚꩜｡ ⋮ ⸝⸝INFP 4w5⸝⸝
+
 ⋆˚꩜｡ ⋮ ⸝⸝do not copy/take major inspo from me!! minor inspo is fine .⸝⸝ 
 
 ⋆˚꩜｡ ⋮ ⸝⸝usually afk either cause i'm busy or i'm stressed/burnt out . w2i preferred . although sometimes i disconnect cause of my interenet/if i was afk for too long . because of this sometimes i miss chats or whispers sent to me , i'm sorry for this i swear i'm not ignoring you </3⸝⸝
