@@ -31,7 +31,7 @@
 
 ⋆˚꩜｡ ⋮ ⸝⸝music: ***vocaloid*** , mitski , jack stauber , yaelokre , kikuo , ***maretu*** , ***ghost and pals*** , vane lily , riproducer .⸝⸝
 
-⋆˚꩜｡ ⋮ ⸝⸝others: drawing , reading , listening to music , playing the piano , history , psychology , video essays , etc .⸝⸝
+⋆˚꩜｡ ⋮ ⸝⸝others: drawing , reading , listening to music , history , psychology , video essays , etc .⸝⸝
 
 ( the ones in bold & italic are my favs! )
 
