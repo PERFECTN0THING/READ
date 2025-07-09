@@ -42,7 +42,21 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 ## ⋆˚࿔ BYI ᝰ.ᐟ : 
-⋆˚꩜｡ ⋮ ⸝⸝booping and kissing is fine but please ask before c+h with me . if you're a friend ***PLEASE*** ask before going to my location . i usually don't use tome tags , please lmk if you need them . i am ***NOT*** comfy with kys/die jokes , please refrain from making them with me . if i'm comfortable with you i might make freaky/sexual jokes a lot , but if you aren't okay with this i'll stop . i switch fandoms a lot and it's hard for me to stick to a single one unless i'm really into it , so please only bmf if you'll still talk to me even if we have diff fandoms . i social anxiety and i have lots of trouble socializing . i often struggle with knowing what to say in convos . i'm sorry if i seem dry/uninterested/rude , i don't mean to seem that way i'm just extremely socially awkward . once you get to know me better i start becoming more energetic and social though .⸝⸝
+⋆˚꩜｡ ⋮ ⸝⸝booping and kissing is fine but please ask before c+h with me .⸝⸝
+
+⋆˚꩜｡ ⋮ ⸝⸝if you're a friend ***PLEASE*** ask before going to my location .⸝⸝
+
+⋆˚꩜｡ ⋮ ⸝⸝i usually don't use tome tags , please lmk if you need them .⸝⸝ 
+
+⋆˚꩜｡ ⋮ ⸝⸝i am ***NOT*** comfy with kys/die jokes , please refrain from making them with me .⸝⸝
+
+⋆˚꩜｡ ⋮ ⸝⸝if i'm comfortable with you i might make freaky/sexual jokes a lot , but if you aren't okay with this i'll stop .⸝⸝ 
+
+⋆˚꩜｡ ⋮ ⸝⸝i switch fandoms a lot and it's hard for me to stick to a single one unless i'm really into it , so please only bmf if you'll still talk to me even if we have diff fandoms .⸝⸝
+
+⋆˚꩜｡ ⋮ ⸝⸝i social anxiety and i have lots of trouble socializing . i often struggle with knowing what to say in convos . i'm sorry if i seem dry/uninterested/rude , i don't mean to seem that way i'm just extremely socially awkward . once you get to know me better i start becoming more energetic and social though .⸝⸝
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 ## ⋆˚࿔ DNI ᝰ.ᐟ :
 ⋆˚꩜｡ ⋮ ⸝⸝basic criteria (lgbtphobes, racists, sexists, ableists, etc) , under 13/over 20 , roleplayers (unless friends) , tutorial ponies , dsmp fans , those who make fun of any of my interests , & those who regularly discuss proship/antiship discourse , sorry but it makes me uncomfortable . idc what you ship/enjoy in fiction but just don't drag me into discourse please .⸝⸝
