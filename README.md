@@ -15,6 +15,10 @@
 
 ⋆˚꩜｡ ⋮ ⸝⸝INFP 4w5⸝⸝
 
+⋆˚꩜｡ ⋮ ⸝⸝autistic⸝⸝
+
+ ⋆˚꩜｡ ⋮ ⸝⸝i usually don't need tone tags, but i'll let you know if i'm confused with your tone or anything .⸝⸝
+
 ⋆˚꩜｡ ⋮ ⸝⸝do not copy/take major inspo from me!! minor inspo is fine .⸝⸝ 
 
 ⋆˚꩜｡ ⋮ ⸝⸝usually afk either cause i'm busy or i'm stressed/burnt out . w2i preferred . although sometimes i disconnect cause of my interenet/if i was afk for too long . because of this sometimes i miss chats or whispers sent to me , i'm sorry for this i swear i'm not ignoring you </3⸝⸝
@@ -38,7 +42,7 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 ## ⋆˚࿔ BYI ᝰ.ᐟ : 
-⋆˚꩜｡ ⋮ ⸝⸝booping and kissing is fine but please ask before c+h with me . if you're a friend please ask before going to my location , as it can be annoying to me when people show up directly to where i am without warning and sometimes i'm just not in the mood to talk to friends . i am ***NOT*** comfy with kys/die jokes , please refrain from making them with me . if i'm comfortable with you i might make freaky/sexual jokes a lot , but if you aren't okay with this i'll stop . i switch fandoms a lot and it's hard for me to stick to a single one unless i'm really into it , so please only bmf if you'll still talk to me even if we have diff fandoms . i have autism + social anxiety and i have trouble socializing . i often struggle with knowing what to say in convos . i'm sorry if i seem dry/uninterested/rude , i don't mean to seem that way i'm just extremely socially awkward . once you get to know me better i start becoming more energetic and social though . i'm like extremely shy so i rarely interact first but don't be afraid to int with me please i want more friends ^^' .⸝⸝
+⋆˚꩜｡ ⋮ ⸝⸝booping and kissing is fine but please ask before c+h with me . if you're a friend ***PLEASE*** ask before going to my location . i usually don't use tome tags , please lmk if you need them . i am ***NOT*** comfy with kys/die jokes , please refrain from making them with me . if i'm comfortable with you i might make freaky/sexual jokes a lot , but if you aren't okay with this i'll stop . i switch fandoms a lot and it's hard for me to stick to a single one unless i'm really into it , so please only bmf if you'll still talk to me even if we have diff fandoms . i social anxiety and i have lots of trouble socializing . i often struggle with knowing what to say in convos . i'm sorry if i seem dry/uninterested/rude , i don't mean to seem that way i'm just extremely socially awkward . once you get to know me better i start becoming more energetic and social though . i'm like extremely shy so i rarely interact first but don't be afraid to int with me please i want more friends ^^' .⸝⸝
 
 ## ⋆˚࿔ DNI ᝰ.ᐟ :
 ⋆˚꩜｡ ⋮ ⸝⸝basic criteria (lgbtphobes, racists, sexists, ableists, etc) , under 13/over 20 , roleplayers (unless friends) , tutorial ponies , dsmp fans , those who make fun of any of my interests , & those who regularly discuss proship/antiship discourse , sorry but it makes me uncomfortable . idc what you ship/enjoy in fiction but just don't drag me into discourse please .⸝⸝
