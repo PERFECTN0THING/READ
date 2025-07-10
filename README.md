@@ -44,17 +44,19 @@
 ## ⋆˚࿔ BYI ᝰ.ᐟ : 
 ⋆˚꩜｡ ⋮ ⸝⸝booping and kissing is fine but please ask before c+h with me .⸝⸝
 
-⋆˚꩜｡ ⋮ ⸝⸝if you're a friend ***PLEASE*** ask before going to my location .⸝⸝
+⋆˚꩜｡ ⋮ ⸝⸝if you're a friend **PLEASE** ask before going to my location .⸝⸝
 
 ⋆˚꩜｡ ⋮ ⸝⸝i usually don't use tome tags , please lmk if you need them .⸝⸝ 
 
-⋆˚꩜｡ ⋮ ⸝⸝i am ***NOT*** comfy with kys/die jokes , please refrain from making them with me .⸝⸝
+⋆˚꩜｡ ⋮ ⸝⸝i am **NOT** comfy with kys/die jokes , please refrain from making them with me .⸝⸝
 
 ⋆˚꩜｡ ⋮ ⸝⸝if i'm comfortable with you i might make freaky/sexual jokes a lot , but if you aren't okay with this i'll stop .⸝⸝ 
 
 ⋆˚꩜｡ ⋮ ⸝⸝i switch fandoms a lot and it's hard for me to stick to a single one unless i'm really into it , so please only bmf if you'll still talk to me even if we have diff fandoms .⸝⸝
 
-⋆˚꩜｡ ⋮ ⸝⸝i social anxiety and i have lots of trouble socializing . i often struggle with knowing what to say in convos . i'm sorry if i seem dry/uninterested/rude , i don't mean to seem that way i'm just extremely socially awkward . once you get to know me better i start becoming more energetic and social though .⸝⸝
+⋆˚꩜｡ ⋮ ⸝⸝i social anxiety and i have lots of trouble socializing . i often struggle with knowing what to say in convos . i'm sorry if i seem dry/uninterested/rude , i don't mean to seem that way i'm just extremely socially awkward .⸝⸝
+
+⋆˚꩜｡ ⋮ ⸝⸝btw before becoming friends w/ me , be aware i lowkey have attachment issues and i have trouble getting close to people . i find intimacy challenging because i tend to be reclusive and distant , and it takes me awhile to get comfortable enough with others to become close to them .⸝⸝
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
