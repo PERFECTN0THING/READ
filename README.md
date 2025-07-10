@@ -59,7 +59,7 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 ## ⋆˚࿔ DNI ᝰ.ᐟ :
-⋆˚꩜｡ ⋮ ⸝⸝basic criteria (lgbtphobes, racists, sexists, ableists, etc) , under 13/over 20 , roleplayers (unless friends) , tutorial ponies , dsmp fans , those who make fun of any of my interests , & those who regularly discuss proship/antiship discourse , sorry but it makes me uncomfortable . idc what you ship/enjoy in fiction but just don't drag me into discourse please .⸝⸝
+⋆˚꩜｡ ⋮ ⸝⸝basic criteria (lgbtphobes, racists, sexists, ableists, etc) , under 13/over 20 , roleplayers (unless friends) , tutorial ponies , & those who regularly discuss proship/antiship discourse , sorry but it makes me uncomfortable . idc what you ship/enjoy in fiction but just don't drag me into discourse please .⸝⸝
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
