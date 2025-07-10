@@ -56,7 +56,7 @@
 
 ⋆˚꩜｡ ⋮ ⸝⸝i social anxiety and i have lots of trouble socializing . i often struggle with knowing what to say in convos . i'm sorry if i seem dry/uninterested/rude , i don't mean to seem that way i'm just extremely socially awkward .⸝⸝
 
-⋆˚꩜｡ ⋮ ⸝⸝btw before becoming friends w/ me , be aware i lowkey have attachment issues and i have trouble getting close to people . i find intimacy challenging because i tend to be reclusive and distant , and it takes me awhile to get comfortable enough with others to become close to them .⸝⸝
+⋆˚꩜｡ ⋮ ⸝⸝btw before becoming friends w/ me , be aware i lowkey have attachment issues and i have trouble getting close to people . i find intimacy challenging because i tend to be reclusive and distant , and it takes me awhile to get comfortable enough with others to become close to them . i'm sorry .⸝⸝
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
