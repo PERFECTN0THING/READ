@@ -64,4 +64,5 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 ![IMG_3420](https://github.com/user-attachments/assets/ac5bda7c-4e95-4e8f-b229-a8e0b3b9122f)
+![Profile view counter](https://komarev.com/ghpvc/?username=paparazzimurderparty)
 
