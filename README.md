@@ -4,4 +4,4 @@
 
 [≡;- ꒰ °atabook ꒱](https://cubibibibism.atabook.org/)
 
-[≡;- ꒰ °prns page ꒱]
+[≡;- ꒰ °prns page ꒱](https://en.pronouns.page/@moonpaint)
