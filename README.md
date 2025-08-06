@@ -1,3 +1,7 @@
+<div id="header" align="center">
+
+  ![](https://komarev.com/ghpvc/?username=paparazzimurderparty&style=plastic&color=lightgrey&label=_homos_&base=0)
+
 <img width="500" height="500" alt="IMG_1696" src="https://github.com/user-attachments/assets/991f7bfd-460a-47fd-9a13-6e952774bdc7" />
 
 <div id="header" align="center">
